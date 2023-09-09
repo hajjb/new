@@ -1,2 +1,2 @@
 # new readme
-git test
+git test /help
