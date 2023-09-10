@@ -1,2 +1,2 @@
 # new readme
-git test /help
+git test /help = f1
