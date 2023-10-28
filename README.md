@@ -8,3 +8,4 @@ git to know people more
 git give me power to save you 
 hello to me what to do me right? 
 git tax me for you page that I say 👋 
+say bye
