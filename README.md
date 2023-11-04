@@ -9,4 +9,4 @@ git give me power to save you
 hello to me what to do me right? 
 git tax me for you page that I say 👋 
 say hi to me and you too
-do it hard
+do it hard to
